@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @TrollerCon
-- 👀 I’m interested in the gradual decline of the human race
+- 👀 I’m interested in repairing dents in the universe
 - 🌱 I’m currently learning how to enter The Matrix
 - 💞️ I’m looking to collaborate on good times
 - 📫 How to reach me ... don't call me I'll call you?
